@@ -1,1 +1,1 @@
-Your free space to express your opinion in eveyry line of code!
+Your free space to express your opinion in every line of code!
